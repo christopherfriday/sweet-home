@@ -1,6 +1,6 @@
 # sweet home
 
-things we do in my home 
+things we do in my family 
 
 - prays
 - plays
